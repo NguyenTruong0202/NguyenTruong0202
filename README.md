@@ -1,3 +1,4 @@
+![sc1](https://github.com/user-attachments/assets/3eb73dfd-1cb5-409b-a745-e616e00bb2a0)
 
 
 Nguyễn Thanh Trường 
